@@ -9,3 +9,8 @@
 
 - https://sidequestvr.com/
 - https://anagan79.itch.io/quest-games-optimizer
+
+## how-to
+
+- https://www.youtube.com/watch?v=8_OK_1Ym11E&feature=youtu.be
+- 
